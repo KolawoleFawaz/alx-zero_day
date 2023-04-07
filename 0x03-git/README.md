@@ -1,1 +1,1 @@
-sholape
+Growth Mindset
